@@ -1,0 +1,3 @@
+Si attivano da servizi accessori, dentro la conferma o da listini cliccando listini e poi listini accessori.
+
+SERVIZI ACCESSORI COME LA SPONDA IDRAULICA O LA GIACENZA SI POSSO ATTIVARE NORMALMENTE PERCHE NON VANNO A PERCENTUALE MA A SPEDIZIONE, QUINDI, SONO ATTIVABILI A PIACIMENTO.
